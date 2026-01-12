@@ -8,7 +8,11 @@ if you see me in pt come to me to int... i dont int first because im too shy som
 and you can c+h anytime !!
 
 
-DANGANRONPA FANS PLEASE INT !!🥹
+DANGANRONPA FANS PLEASE INT !!❤️
+
+FANDOMS IM IN: ↓
+
+Bfdi, Danganronpa, block tales, trud, die of death, and so many more... sweats...
 _________________________________
 
 ![Image](https://github.com/user-attachments/assets/02083b41-5543-4d32-bb16-a252ce13653b) 
@@ -22,4 +26,4 @@ weirdos, p3d0s, darkshippers, dni
 
 __________________________________
 
-SOMETIMES IM AFK OR OFFTAB SO W2i !!🥹
+SOMETIMES IM AFK OR OFFTAB SO W2i !!
