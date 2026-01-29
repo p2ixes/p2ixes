@@ -1,29 +1,15 @@
-*``hello my name is Axel!! ``*
+1. ![Image](https://github.com/user-attachments/assets/e7e1e294-d24a-43be-affe-5e3728e8229d) 
 
-i love drawing and playing pt
+   .
 
-if you see me in pt come to me to int... i dont int first because im too shy sometimes...
-
-
-and you can c+h anytime !!
-
-
-DANGANRONPA FANS PLEASE INT !!❤️
-
-FANDOMS IM IN: ↓
-
-Bfdi, Danganronpa, block tales, trud, die of death, and so many more... sweats...
-_________________________________
-
-![Image](https://github.com/user-attachments/assets/02083b41-5543-4d32-bb16-a252ce13653b) 
-
-__________________________________
+ @p2ixes
 
 
 
 
-weirdos, p3d0s, darkshippers, dni
 
-__________________________________
 
-SOMETIMES IM AFK OR OFFTAB SO W2i !!
+
+
+
+ i dont play pt anymore because i dont feel better and good so pls pray for me to get better.
