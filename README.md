@@ -1,15 +1,23 @@
-1. ![Image](https://github.com/user-attachments/assets/e7e1e294-d24a-43be-affe-5e3728e8229d) 
 
-   .
-
+9
  @p2ixes
+5
 
+1
+2
+3
+3
+5
+8
+HI im soro and i love playing pt.,,
 
-
-
-
-
-
-
-
- i dont play pt anymore because i dont feel better and good so pls pray for me to get better.
+interests in games:  ↓
+1 dandys world (not in 
+                fandom)
+  2 forsaken (not in
+             fandom) 
+ 3  resident evil
+ 4  until dawn
+5   block tales
+6    minecraft
+          
